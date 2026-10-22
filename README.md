@@ -1,0 +1,1 @@
+# Conquistar-E-Dividir-For-a-bruta
